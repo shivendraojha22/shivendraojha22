@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://shivendraojha.netlify.app](https://shivendraojha.netlify.app)
 
-- 📫 How to reach me **shivendraojha22@gmail.com**
+- 📫 How to reach me **shivendra.ojha@outlook.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1GhJMIvOBEIz0VsKAo3abzz4YWB_kJUDf/view?usp=sharing](https://drive.google.com/file/d/1GhJMIvOBEIz0VsKAo3abzz4YWB_kJUDf/view?usp=sharing)
 
